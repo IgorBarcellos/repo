@@ -1,7 +1,6 @@
 # repo
-Follow You
-Canção de Bring Me the Horizon
-Letras
+Follow You - Bring Me the Horizon
+.
 My head is haunting me and my heart feels like a ghost
 I need to feel something, 'cause I'm still so far from home
 Cross your heart and hope to die
