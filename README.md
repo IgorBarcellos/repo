@@ -1,25 +1,40 @@
 # repo
-Ticking away the moments that make up a dull day
-Fritter and waste the hours in an offhand way
-Kicking around on a piece of ground in your hometown
-Waiting for someone or something to show you the way
-Tired of lying in the sunshine, staying home to watch the rain
-You are young and life is long, and there is time to kill today
-And then one day you find ten years have got behind you
-No one told you when to run, you missed the starting gun
-And you run, and you run to catch up with the sun but it's sinking
-Racing around to come up behind you again
-The sun is the same in a relative way but you're older
-Shorter of breath and one day closer to death
-Every year is getting shorter, never seem to find the time
-Plans that either come to naught or half a page of scribbled lines
-Hanging on in quiet desperation is the English way
-The time is gone, the song is over, thought I'd something more to say
-Home, home again
-I like to be here when I can
-And when I come home cold and tired
-It's good to warm my bones beside the fire
-Far away across the field
-The tolling of the iron bell
-Calls the faithful to their knees
-To hear the softly spoken magic spells
+Follow You
+Canção de Bring Me the Horizon
+Letras
+My head is haunting me and my heart feels like a ghost
+I need to feel something, 'cause I'm still so far from home
+Cross your heart and hope to die
+Promise me you'll never leave my side
+Show me what I can't see when the spark in your eyes is gone
+You've got me on my knees I'm your one man cult
+Cross my heart and hope to die
+Promise you I'll never leave your side
+'Cause I'm telling you you're all I need
+I promise you you're all I see
+'Cause I'm telling you you're all I need
+I'll never leave
+So you can drag me through hell
+If it meant I could hold your hand
+I will follow you 'cause I'm under your spell
+And you can throw me to the flames
+I will follow you, I will follow you
+Come sink into me and let me breathe you in
+I'll be your gravity, you be my oxygen
+So dig two graves 'cause when you die
+I swear I'll be leaving by your side
+So you can drag me through hell
+If it meant I could hold your hand
+I will follow you 'cause I'm under you spell
+And you can throw me to the flames
+I will follow you so you can drag me through hell
+If it meant I could hold your hand
+I will follow you 'cause I'm under you spell
+And you can throw me to the flames
+I will follow you, I will follow you
+I will follow you, I will follow you
+So you can drag me through hell
+If it meant I could hold your hand
+I will follow you 'cause I'm under you spell
+And you can throw me to the flames
+I will follow you, I will follow you
